@@ -16,7 +16,7 @@ I enjoy building websites and improving my skills in **HTML, CSS, and JavaScript
 - OR view using **GitHub Pages**
 
 ## 📫 Contact
-📧 Email: shalumuskan420@gmail.com
+📧 Email: muskanshalu465@gmail.com
 
 ---
 © 2026 Shalu Muskan
